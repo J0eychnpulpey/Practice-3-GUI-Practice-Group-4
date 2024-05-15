@@ -2,4 +2,5 @@
 
 ![image](https://github.com/J0eychnpulpey/Practice-3-GUI-Practice-Group-4/assets/106713068/087a8755-fdf2-4d00-8352-47c58b8bab8c)
 
-![Uploading image.png…]()
+![image](https://github.com/J0eychnpulpey/Practice-3-GUI-Practice-Group-4/assets/106713068/fa600c8d-4e1a-4a4a-bac0-132cffe18ec0)
+
